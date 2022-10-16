@@ -1,5 +1,5 @@
 # 💫 About Me:
-🌱 I’m currently learning Java, Node.js, HTML, CSS<br>💫 I am a basic stage developer. 🌆
+➲ 𝗦𝗔𝗡𝗝𝗨𝗪𝗔 𝗢𝗙𝗖 𝗧𝗘𝗔𝗠 | 𝗪𝗛𝗔𝗧𝗦𝗔𝗣𝗣 𝗕𝗢𝗧 | 𝗩𝗣𝗡 | 𝗙𝗥𝗘𝗘 𝗙𝗜𝗥𝗘 𝗡𝗘𝗪𝗦 
 
 
 # 💻 Tech Stack:

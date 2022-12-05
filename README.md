@@ -135,5 +135,4 @@ https://chat.whatsapp.com/BDn14AYWOgcIa1TNesO5g5
 [![](https://visitcount.itsvg.in/api?id=Sanjuwa22&icon=8&color=12)](https://visitcount.itsvg.in)
 
 
-╳🔰 Created By 🔰╳
-╳⚖ SANJUWA OFC ⚖╳
+╳🔰 Created By SANJUWA OFC 🔰╳

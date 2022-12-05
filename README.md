@@ -1,5 +1,11 @@
 # 💫 About Me:
 
+
+<p align="center"> <a href="github.com/Sanjuwa22"><img align="center" src="https://i.ibb.co/cbGhk0X/20221011-020513.jpg"/></a>
+
+
+
+
 <h1> ➲ Personal Details </h1>
 
 🔰 My Name Is Sanjula Samarasinghe.
@@ -24,7 +30,7 @@
 
 <h1> ✨ 𝗦𝗔𝗡𝗝𝗨𝗪𝗔 𝗢𝗙𝗖 ➲ ᴮᴼᵀ ⚖ නිවස 🖥️ </h1>
 
-<p align="center"> <a href="github.com/Sanjuwa22"><img align="center" src="https://ibb.co/KjhMv7r"/></a>
+<p align="center"> <a href="github.com/Sanjuwa22"><img align="center" src="https://i.ibb.co/cbGhk0X/20221011-020513.jpg"/></a>
 
 
 --------------------------------------------------------------------------------

@@ -23,12 +23,11 @@
 🔰 Facebook : San Ju Wa
 
 🔰 E-Mail : Sanjulabro2000@gmail.com
-
 🔰 Telegram : 94710513877
 --------------------------------------------------------------------------------
 ☘️ Whatsapp Groups
 
-<h1> ✨ 𝗦𝗔𝗡𝗝𝗨𝗪𝗔 𝗢𝗙𝗖 ➲ ᴮᴼᵀ ⚖ නිවස 🖥️ </h1>
+<h3> ✨ 𝗦𝗔𝗡𝗝𝗨𝗪𝗔 𝗢𝗙𝗖 ➲ ᴮᴼᵀ ⚖ නිවස 🖥️ </h3>
 
 <p align="center"> <a href="github.com/Sanjuwa22"><img align="center" src="https://i.ibb.co/cbGhk0X/20221011-020513.jpg"/></a>
 
@@ -60,7 +59,7 @@ group open time
 
 6 PM - 12 AM
 
-<h1> ✨ 𝗦𝗔𝗡𝗝𝗨𝗪𝗔 𝗢𝗙𝗖 ➲ FF ⚖ නිවස </h1>
+<h3> ✨ 𝗦𝗔𝗡𝗝𝗨𝗪𝗔 𝗢𝗙𝗖 ➲ FF ⚖ නිවස </h3>
 
 <p align="center"> <a href="github.com/Sanjuwa22"><img align="center" src="https://i.ibb.co/WxhMHLT/photo.jpg"/></a>
 
@@ -72,7 +71,9 @@ group open time
 🎮 ᴜᴘᴄᴏᴍɪɴɢ ᴄᴏʟʟᴇᴄᴛɪᴏɴꜱ ᴀɴᴅ ᴋɪᴛꜱ
 📚 ᴜᴘᴄᴏᴍɪɴɢ ᴡᴇᴀᴘᴏɴꜱ ᴀɴᴅ ꜱᴋɪɴꜱ 
 🔱 ᴜᴘᴄᴏᴍɪɴɢ ᴜᴘᴅᴀᴛᴇꜱ
+
 ☘️ ᴜᴘᴄᴏᴍɪɴɢ ʟᴜᴄᴋ ʀᴏʏᴀʟ
+
 🤗 ᴜᴘᴄᴏᴍɪɴɢ ꜱᴛᴏʀᴇꜱ 
 
 ɢʀᴏᴜᴘ ʀᴜʟᴇꜱ 

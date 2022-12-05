@@ -60,5 +60,38 @@ group open time
 
 6 PM - 12 AM
 
+<h1> ✨ 𝗦𝗔𝗡𝗝𝗨𝗪𝗔 𝗢𝗙𝗖 ➲ FF ⚖ නිවස </h1>
+
+<p align="center"> <a href="github.com/Sanjuwa22"><img align="center" src="https://i.ibb.co/WxhMHLT/photo.jpg"/></a>
+
+🗯️ Group Details
+
+📂 ☘️ ᴛʜɪꜱ ɢʀᴏᴜᴘ ɪꜱ ꜰʀᴇᴇ ꜰɪʀᴇ ɴᴇᴡꜱ ɢʀᴏᴜᴘ ☘️
+
+📂 ᴜᴘᴄᴏᴍɪɴɢ ᴇᴠᴇɴᴛꜱ ᴀɴᴅ ᴍɪꜱꜱɪᴏɴꜱ
+🎮 ᴜᴘᴄᴏᴍɪɴɢ ᴄᴏʟʟᴇᴄᴛɪᴏɴꜱ ᴀɴᴅ ᴋɪᴛꜱ
+📚 ᴜᴘᴄᴏᴍɪɴɢ ᴡᴇᴀᴘᴏɴꜱ ᴀɴᴅ ꜱᴋɪɴꜱ 
+🔱 ᴜᴘᴄᴏᴍɪɴɢ ᴜᴘᴅᴀᴛᴇꜱ
+☘️ ᴜᴘᴄᴏᴍɪɴɢ ʟᴜᴄᴋ ʀᴏʏᴀʟ
+🤗 ᴜᴘᴄᴏᴍɪɴɢ ꜱᴛᴏʀᴇꜱ 
+
+ɢʀᴏᴜᴘ ʀᴜʟᴇꜱ 
+➊ ᴅᴏɴ'ᴛ ɪɴʙᴏx ᴀɴʏ ᴍᴇᴍʙᴇʀꜱ.
+
+ᴘᴏꜱᴛ ᴜᴘʟᴏᴀᴅ ꜱᴄʜᴇᴅᴜʟᴇ 
+
+ʙᴇᴛᴡᴇᴇɴ ꜰᴏʀ 8 . 00 ᴀᴍ - 11.30 ᴘᴍ
+
+ɢʀᴏᴜᴘ ʟɪɴᴋ
+
+https://chat.whatsapp.com/LCgwvkO1ERz6bbPC7DQGbV
+
+ꜰᴀᴄᴇʙᴏᴏᴋ ɢʀᴏᴜᴘ
+
+https://www.facebook.com/groups/5613227868753915/?ref=share
+
+
+
+
 --------------------------------------------------------------------------------
 [![](https://visitcount.itsvg.in/api?id=Sanjuwa22&icon=8&color=12)](https://visitcount.itsvg.in)

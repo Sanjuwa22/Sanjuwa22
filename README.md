@@ -20,5 +20,12 @@
 
 🔰 Telegram : 94710513877
 
+# ☘️ Whatsapp Groups
+
+<h1> ✨ 𝗦𝗔𝗡𝗝𝗨𝗪𝗔 𝗢𝗙𝗖 ➲ ᴮᴼᵀ ⚖ නිවස 🖥️ </h1>
+
+<p align="center"> <a href="github.com/Sanjuwa22"><img align="center" src="https://ibb.co/KjhMv7r"/></a>
+
+
 --------------------------------------------------------------------------------
 [![](https://visitcount.itsvg.in/api?id=Sanjuwa22&icon=8&color=12)](https://visitcount.itsvg.in)
